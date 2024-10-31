@@ -9,6 +9,10 @@ permalink: /
 
 Frank Gunderson is a man with a crow. That is because it is Halloween. 
 
+Did you know that crows have funerals?
+
+Did you know that crows work together to steal tourist's food?
+
 An experienced field recordist, he has worked with scientists at the Cornell Lab of Ornithology and has contributed field recordings to the Macaulay Library. In 2012 he was Artist in Residence at Crater Lake National Park and spent several weeks recording and documenting the park's ecosystems. Since then his work has centered around documenting and interpreting the changing soundscapes of the Pacific Northwest.
 
 His works have been performed by the Seatle Symphony, Eighth Blackbird, Third Angle New Music, Prism Saxophone Quartet, and soprano Estelí Gomez, among others. Awards include the Grand Prize in the Zvi Zeitlin Memorial International Composers Competition; fellowships at the University of Oregon and Brevard Music Festival; and grants and commissions from New Music USA and Third Angle New Music. 
