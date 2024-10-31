@@ -7,7 +7,7 @@ featured-img: andrew-stiefel-viola.jpg
 permalink: /
 ---
 
-Andrew Stiefel is a composer and sound artist whose music explores the intersections between written and recorded sound. 
+Frank Gunderson is a man with a crow. That is because it is Halloween. 
 
 An experienced field recordist, he has worked with scientists at the Cornell Lab of Ornithology and has contributed field recordings to the Macaulay Library. In 2012 he was Artist in Residence at Crater Lake National Park and spent several weeks recording and documenting the park's ecosystems. Since then his work has centered around documenting and interpreting the changing soundscapes of the Pacific Northwest.
 
